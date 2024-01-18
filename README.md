@@ -1,2 +1,2 @@
-# Richie
+# Richard Impert Jr.
 
